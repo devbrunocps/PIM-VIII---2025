@@ -1,0 +1,1 @@
+Olá professor, queriamos te dizer que nos enfrentamos alguns desafios ao longo do desenvolvimento deste projeto e muitas dificuldades, mas nos dedicamos ao máximo para alcançar o resultado esperado. Procuramos seguir as orientações propostas e aplicar os conhecimentos adquiridos, sempre com o objetivo de entregar um trabalho coerente e alinhado com o que foi solicitado.
